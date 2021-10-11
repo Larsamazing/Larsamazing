@@ -1,0 +1,4 @@
+- 👋 I’m @Larsamazing
+- 👀 Interested in crafts and design
+- 🌱 currently learning embroidery
+- 📫 Message me on Ig: larrs_secret or tiktok lalalaaaa09
